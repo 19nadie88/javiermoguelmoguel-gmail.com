@@ -1,2 +1,0 @@
-# javiermoguelmoguel-gmail.com
-LaLiga
